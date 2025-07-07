@@ -1,0 +1,1 @@
+# satta-king-result.github.io
